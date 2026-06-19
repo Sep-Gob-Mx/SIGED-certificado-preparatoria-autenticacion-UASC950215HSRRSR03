@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-UASC950215HSRRSR03
+UASC950215HSRRSR03
